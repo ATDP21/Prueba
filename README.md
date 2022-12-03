@@ -8,5 +8,6 @@ no pretendo aunque lo parezca, hablar creyendo que lo sé todo.
 
 Además que bueno, la idea del diario surje por lo que yo suelo insistir, mi «hipermetropía [cognitiva y sentimental]», ser
 torpe para tratar temas ya sean ajenos o propios pero que se acerquen de mi propio interior, porque es posible que me desconozca 
-todavía.
+todavía. Quizás así creando una representación mía, pueda analizarme desde un 'tú' y no en una masa homogenea de información
+hecha persona.
 
